@@ -7,7 +7,7 @@
 ![Alt Teks](https://github.com/Richmondjanusrafiiaryanto/JOBSHEET-PBO/blob/master/Screenshot%20(437).png)
 ![Alt Teks](https://github.com/Richmondjanusrafiiaryanto/JOBSHEET-PBO/blob/master/Screenshot%20(438).png)
 ![Alt Teks](https://github.com/Richmondjanusrafiiaryanto/JOBSHEET-PBO/blob/master/Screenshot%20(439).png)
-![Alt Teks](https://github.com/Richmondjanusrafiiaryanto/JOBSHEET-PBO/blob/master/Screenshot%20(442).png)
+![Alt Teks](https://github.com/Richmondjanusrafiiaryanto/JOBSHEET-PBO/blob/master/Screenshot%20(445).png)
 
 Jawaban 
 Latihan 4 :
